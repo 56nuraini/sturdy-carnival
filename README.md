@@ -1,2 +1,0 @@
-# sturdy-carnival
-Ekonomi syariah
